@@ -1,3 +1,1 @@
-＃hmmay8
-
-初次使用
+For the first time to use
